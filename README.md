@@ -1,2 +1,2 @@
 # Twenty One Degrees
-Business Solutions Consultant
+Twenty One Deggrees - Innovation Consulting
